@@ -8,3 +8,5 @@ For no translation I've found,with enthusiastic desire,I will try it myself XD<b
 
 因为中英文都很菜所以搞很慢的(〃´-ω･) <br/><br/>
 I translate a book so vegetable<br/><br/><br/><br/>
+
+// 看火星救援去了 此事再议
